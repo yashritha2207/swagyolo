@@ -1,2 +1,2 @@
 # swagyolo
-swag se karenge sabka swagat
+your girlfriend look like my mom
